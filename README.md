@@ -1,3 +1,5 @@
+### Paul John Hicks
+
 ### LGBTQI+ Campaigner
 -	Contributing towards LGBTQI+ campaigns in Oxfordshire, UK and via national campaigns such as Ban Conversion Therapy and Stonewall
 
