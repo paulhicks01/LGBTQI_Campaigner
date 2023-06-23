@@ -1,7 +1,8 @@
 ### Paul John Hicks
 
 ### LGBTQI+ Campaigner
--	Contributing towards LGBTQI+ campaigns in Oxfordshire, UK and via national campaigns such as Ban Conversion Therapy and Stonewall
+
+-	Contributing towards UK LGBTQI+ campaigns such as [Ban Conversion Therapy](https://www.banconversiontherapy.com/) and [Stonewall](https://www.stonewall.org.uk/)
 
 -	Bishopsgate Institute - 
 [People’s Pride Archive (2022)](https://www.bishopsgate.org.uk/peoples-pride-archive)
