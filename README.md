@@ -1,4 +1,4 @@
-### Paul John Hicks
+### Emma Louise Hicks
 
 ### LGBTQI+ Campaigner
 
