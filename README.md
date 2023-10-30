@@ -1,8 +1,8 @@
-### Emma Louise Hicks
+### Paul John Hicks
 
 ### LGBTQI+ Campaigner
 
--	Contributing towards UK LGBTQI+ campaigns such as [Ban Conversion Therapy](https://www.banconversiontherapy.com/) and [Stonewall](https://www.stonewall.org.uk/)
+-	Contributed towards UK LGBTQI+ campaigns such as [Ban Conversion Therapy](https://www.banconversiontherapy.com/) and [Stonewall](https://www.stonewall.org.uk/)
 
 -	Bishopsgate Institute - 
 [People’s Pride Archive (2022)](https://www.bishopsgate.org.uk/peoples-pride-archive)
