@@ -1,8 +1,8 @@
-### Paul John Hicks
+### Emma Louise Hicks
 
 ### LGBTQI+ Campaigner
 
--	Contributed towards UK LGBTQI+ campaigns such as [Ban Conversion Therapy](https://www.banconversiontherapy.com/) and [Stonewall](https://www.stonewall.org.uk/)
+-	Contributing towards LGBTQI+ campaigns in Oxfordshire, UK and via national campaigns such as [Ban Conversion Therapy](https://www.banconversiontherapy.com/) and [Stonewall](https://www.stonewall.org.uk/)
 
 -	Bishopsgate Institute - 
 [People’s Pride Archive (2022)](https://www.bishopsgate.org.uk/peoples-pride-archive)
@@ -20,4 +20,5 @@
 [Archive Title: Witney Town Council and the Rainbow (Pride) flag, Reference: LGBTM/441, Date: 2018 - 2021](https://www.bishopsgate.org.uk/archives)
 
 -	Bishopsgate Institute - 
-[Archive Title: Oxford Pride photographs, Reference: LGBTM/525, Date: 2016-2017](https://www.bishopsgate.org.uk/archives)
+[Archive Title: Oxford Pride Photographs, Reference: LGBTM/525, Date: 2016-2017](https://www.bishopsgate.org.uk/archives)
+
